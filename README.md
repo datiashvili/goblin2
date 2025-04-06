@@ -1,1 +1,1 @@
-# goblin2
+# CLASH-OF-CLANS
